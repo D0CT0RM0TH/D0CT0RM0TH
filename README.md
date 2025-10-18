@@ -1,6 +1,4 @@
-<p align="center">
 
-<img width="1197" height="216" alt="image" src="https://github.com/user-attachments/assets/7d82db07-8c23-44ff-8b1c-d149567da340" />
 
 <p align="center">
  ❛❛  <i>What will I do now that you're gone?</i>   ❞
@@ -31,3 +29,7 @@ I enjoy being helpful even If I'm not the best at comforting!
  <p align="center"> 
 ooohhh you wanna sign ata or strawpage ooooo!!!
 
+
+<p align="center">
+
+<img width="1197" height="216" alt="image" src="https://github.com/user-attachments/assets/7d82db07-8c23-44ff-8b1c-d149567da340" />

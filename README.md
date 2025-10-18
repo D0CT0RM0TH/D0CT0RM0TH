@@ -1,7 +1,14 @@
 
 
+
 <p align="center">
  ❛❛  <i>What will I do now that you're gone?</i>   ❞
+
+<p align="center">
+<img width="400" height="450" alt="Stanford pines above waist png" src="https://github.com/user-attachments/assets/66b0cd47-fae5-4038-973f-a1ed76a43714" />
+
+<p align="center">
+ART CREDITS  -   <b>@?.</b>
 
 <p align="center">
 HALLO THERE! You can call me Bell or Brutus, <br>
@@ -27,9 +34,4 @@ everyone deserves to have someone to talk to reguardless of their situation! <br
 I enjoy being helpful even If I'm not the best at comforting! 
 
  <p align="center"> 
-ooohhh you wanna sign ata or strawpage ooooo!!!
-
-
-<p align="center">
-
-<img width="1197" height="216" alt="image" src="https://github.com/user-attachments/assets/7d82db07-8c23-44ff-8b1c-d149567da340" />
+ooohhh you wanna sign my strawpage or ata so badlyy ohhh...

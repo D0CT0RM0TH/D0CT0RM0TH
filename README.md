@@ -7,5 +7,5 @@
 
 
 <p align="center">
-ART CREDITS  -   <b>@Redbowkid.</b>
+ART CREDITS  -   <b>@ ? .</b>
 

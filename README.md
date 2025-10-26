@@ -8,5 +8,10 @@
 
 <p align="center">
 ART CREDITS  -   <b>@Redbowkid.</b>
+
 <p align="center">
-strawpage . prns.cc . rentry
+<small> mostly always offtab, c*h! w2i </small> 
+
+<p align="center">
+users: medicm0th, dr_m0th, bellsia
+

@@ -4,16 +4,17 @@
  ❛❛  <i>What will I do now that you're gone?</i>   ❞ 
 
 <p align="center">
-<img width="400" height="450" alt="CARETAKER PNG!!" src="https://github.com/user-attachments/assets/1df0b853-1a80-47df-808d-2b034bcc77ae" />
+<img width="450" height="400" alt="CARETAKER PNG !!!" src="https://github.com/user-attachments/assets/df7770a7-c64f-4dcf-bf25-3fba3d0c92df" />
 
 <p align="center">
-ART CREDITS  -   <b>@Redbowkid.</b>
+ART CREDITS  -   <b>@rosyamy_
+.</b>
 
 <p align="center">
 <small> mostly always offtab, c*h! w2i </small> 
 
 <p align="center">
-users: medicm0th, dr_m0th, bellsia
+" Guess you died of death!.. Hah get it? "
 
 ---
 

@@ -4,18 +4,17 @@
  ❛❛  <i>What will I do now that you're gone?</i>   ❞ 
 
 <p align="center">
-<img width="450" height="400" alt="CARETAKER PNG !!!" src="https://github.com/user-attachments/assets/df7770a7-c64f-4dcf-bf25-3fba3d0c92df" />
+ <img width="410" height="400" alt="New Drawing Copy2" src="https://github.com/user-attachments/assets/88246b11-174e-47f1-aef9-0861a4bd11e2" />
+
+
 
 <p align="center">
-ART CREDITS  -   <b>@rosyamy_
-.</b>
+ART CREDITS  -   <b>me,myself and.. I!</b>
 
 <p align="center">
 <small> mostly always offtab, c*h! w2i </small> 
 
 <p align="center">
-" Guess you died of death!.. Hah get it? "
-
----
+<i>" They are stupid to think they will win. "</i>
 
 

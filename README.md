@@ -4,7 +4,7 @@
 <p align="center"
 
  ![WISEGUY BUTTON](https://github.com/user-attachments/assets/faa9706b-7b7a-4621-94e6-84df3d67ae0e)
- ![Anything you want](https://komarev.com/ghpvc/?username=D0CT0RM0TH&label=CUSTOMERS&color=000000)
+ ![Anything you want](https://komarev.com/ghpvc/?username=D0CT0RM0TH&label=CUSTOMERS&color=ffffff)
 <img width="59" height="18" alt="image" src="https://github.com/user-attachments/assets/5123a677-8141-42ef-8216-7da23e3fd6ab" />
 
 

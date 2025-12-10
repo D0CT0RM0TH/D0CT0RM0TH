@@ -14,9 +14,9 @@
  C*H is extremely encouraged unless I'm with apple / @zydr4t3. <br>
  Before you interact with me, please note that I do have a pretty low social battery. <br>
  So my apologies if I come off as dry, bored, or upset when interacting. I can promise you I'm not!! <br>
- Then I perfer to not be cuddled with in that case, only expection being if friends !! <br>
+ Then I prefer to not be cuddled with in that case, only exception being if friends !! <br>
  I'm also mostly offtab, so please whisper to interact. I won't see your message otherwise. <br>
-  You can spot me around docks, labs, Hazbin Hotel area,cthe bakery, and with apple & other friends !! <br>
+  You can spot me around docks, labs, Hazbin Hotel area, the bakery, and with apple & other friends !! <br>
 Basic criteria dni, ValAngel, StaticMothDust, Radiodust, CharlieDust, Charcifer, and proships. <br>
 But other then that, you can interact with me freely !! I don't hide or block unless uncomfortable !! <br>
 I sometimes tend to overuse tonetags, so please tell me if you get uncomfortable with me doing so !!

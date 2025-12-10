@@ -19,7 +19,14 @@ Basic criteria dni, ValAngel, StaticMothDust, Radiodust, CharlieDust, Charcifer,
 But other then that, you can interact with me freely !! I don't hide or block unless uncomfortable !! <br>
 I sometimes tend to overuse tonetags, so please tell me if you get uncomfortable with me doing so !!
 
- ---
+<p align="center"
+
+ ![VOX STAMP](https://github.com/user-attachments/assets/8cb04994-9035-417f-a19c-1549bf257d77)
+![vox stamps](https://github.com/user-attachments/assets/987de66f-993a-42c0-bd8f-328a13d8e36f)
+![vox stamps news](https://github.com/user-attachments/assets/a7cd2607-66b7-4e35-b6d1-d0153eef9674) 
+
+
+
 
 <p align="center">
 If you want to add me on Discord you can find my user in my guns.lol !! Or if you want to you could just ask. <br>

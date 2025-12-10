@@ -7,8 +7,6 @@
 <p align="center"/>
  ❛❛  <i>Don't say yes until I finish talking!</i>   ❞  
 <p align="center">
-<b>Main Information!!</b>
-<p align="center">
  HIYA THERE !! You can call me bell, vox, vel or any other name listed, <br>
  I also don't mind nicknames as long as they aren't weird or freaky / sexual !! ^_^ <br>
  C*H is extremely encouraged unless I'm with apple / @zydr4t3. <br>
@@ -23,8 +21,6 @@ I sometimes tend to overuse tonetags, so please tell me if you get uncomfortable
 
  ---
 
-<p align="center">
-<b>Extra Information!!</b>
 <p align="center">
 If you want to add me on Discord you can find my user in my guns.lol !! Or if you want to you could just ask. <br>
 I don't have exactly the best memory, so I might not remember if I've interacted with you before !!  <br>

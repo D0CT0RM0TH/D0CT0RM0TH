@@ -2,13 +2,10 @@
 
 
 <p align="center"
-
+ 
  ![Anything you want](https://komarev.com/ghpvc/?username=D0CT0RM0TH&label=CUSTOMERS&color=568c7f)
 <p align="center"/>
  ❛❛  <i>Don't say yes until I finish talking!</i>   ❞  
-
- ---
- 
 <p align="center">
 <b>Main Information!!</b>
 <p align="center">
@@ -37,8 +34,5 @@ You can also see me in some regiments, if you do don't be afraid to say hi !! I'
  You should totally sign my ata and decorate my tree.. hah.. please.. Gulps.. Free bloxy cola?? <br>
  Anyhow, you can check my rentry, strawpage, and other websites to find out more information about me <br>
  Hah.. I know I'm super freaking peak right? Am I right? Guys?? Hey where did you all go.. 
-
----
-
 <p align="center"> </p>
 <img width="1920" height="1080" alt="New Drawing (66)" src="https://github.com/user-attachments/assets/b7b5d2b0-475a-4be0-81bc-259aabd0b341" />

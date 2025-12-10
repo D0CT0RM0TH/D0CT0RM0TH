@@ -3,7 +3,7 @@
 
 <p align="center"
  
- ![Anything you want](https://komarev.com/ghpvc/?username=D0CT0RM0TH&label=CUSTOMERS&color=red)
+ ![Anything you want](https://komarev.com/ghpvc/?username=D0CT0RM0TH&label=CUSTOMERS&color=07729c)
 <p align="center"/>
  ❛❛  <i>Don't say yes until I finish talking!</i>   ❞  
 

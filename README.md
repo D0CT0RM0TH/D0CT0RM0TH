@@ -12,11 +12,7 @@
  [rentry](https://rentry.co/medicmoth)  [pt info/rentry](https://rentry.co/voxbellpt) [ata](https://drm0th.atabook.org)
 
 <p align="center"
-
- ![VOX STAMP](https://github.com/user-attachments/assets/8cb04994-9035-417f-a19c-1549bf257d77)
-![vox stamps](https://github.com/user-attachments/assets/987de66f-993a-42c0-bd8f-328a13d8e36f)
-![vox stamps news](https://github.com/user-attachments/assets/a7cd2607-66b7-4e35-b6d1-d0153eef9674) 
-
+<img width=" 1048" height="1048" alt="Untitled73" src="https://github.com/user-attachments/assets/a908d3f2-0b40-4d6c-8a7f-84d0c3b8f08b" />
 
 
  

@@ -12,8 +12,7 @@
  [rentry](https://rentry.co/medicmoth)  [pt info/rentry](https://rentry.co/voxbellpt) [ata](https://drm0th.atabook.org)
 
  <p align="center"/>
-
-  <img width=" 548" height="548" alt="Untitled73" src="https://github.com/user-attachments/assets/a908d3f2-0b40-4d6c-8a7f-84d0c3b8f08b" />
+<img width="548" height="548" alt="Untitled73" src="https://github.com/user-attachments/assets/041d395e-c996-4fbb-a23f-d22ce1307d35" />
 
 
  

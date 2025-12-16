@@ -13,7 +13,7 @@ read pt info rentry for more info ⁽𓏼´ㅂ𓏼⁾﹗
 
  <p align="center"/>
 
-  <img src="https://github.com/user-attachments/assets/4dcf8ed4-9cb4-4381-8b41-95d3978e0708" alt="demo" width="300" />
+  <img src="https://github.com/user-attachments/assets/4dcf8ed4-9cb4-4381-8b41-95d3978e0708" alt="demo" width="365" />
 
 <p align="center"/>
  ❛❛　<i>Don't say yes until I finish talking!</i>　❞ 
@@ -22,4 +22,6 @@ read pt info rentry for more info ⁽𓏼´ㅂ𓏼⁾﹗
 <p align="center"
  
 <b> [rentry](https://rentry.co/medicmoth)　[pt info/rentry](https://rentry.co/voxbellpt)　[ata](https://drm0th.atabook.org) <br> 
- [straw.page ⁰¹](https://voxbell.straw.page)　★　[straw.page ⁰²](https://drmoth.straw.page)
+ [straw.page ⁰¹](https://voxbell.straw.page)　★　[straw.page ⁰²](https://drmoth.straw.page) <br>
+
+

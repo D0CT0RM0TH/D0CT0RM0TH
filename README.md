@@ -22,6 +22,6 @@ read pt info rentry for more info ⁽𓏼´ㅂ𓏼⁾﹗
 <p align="center"
  
 <b> [rentry](https://rentry.co/medicmoth)　[pt info/rentry](https://rentry.co/voxbellpt)　[tree](https://colormytree.me/2025/01KBESV1ZAECJKVG4JHXMTGMPT) <br> 
- [straw.page ⁰¹](https://voxbell.straw.page)　★　[straw.page ⁰²](https://drmoth.straw.page) <br>
+ [straw.page ⁰¹](https://voxbelle.straw.page)　★　[straw.page ⁰²](https://drmoth.straw.page) <br>
 
 

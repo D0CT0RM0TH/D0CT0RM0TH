@@ -13,7 +13,8 @@ read pt info rentry for more info ⁽𓏼´ㅂ𓏼⁾﹗
 
  <p align="center"/>
 
-  <img src="https://github.com/user-attachments/assets/4dcf8ed4-9cb4-4381-8b41-95d3978e0708" alt="demo" width="365" />
+  <img src="https://github.com/user-attachments/assets/13146d76-42ea-4e42-a937-faec7f1c6d8f" alt="demo" width="465" />
+
 
 <p align="center"/>
  ❛❛　<i>Don't say yes until I finish talking!</i>　❞ 

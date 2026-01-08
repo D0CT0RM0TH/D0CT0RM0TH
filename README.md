@@ -7,7 +7,7 @@
  
  <p align="center"/>
 <b>offtab almost always, w2interact !</b> <br>
-<i>any prns except masc</i>　 —— 　𐂯   <br>
+<i>any prounouns! </i>　 —— 　𐂯   <br>
  minor 　 +  　<b>any terms</b>   `　<br>
 read pt info rentry for more info ⁽𓏼´ㅂ𓏼⁾﹗
 
@@ -17,7 +17,7 @@ read pt info rentry for more info ⁽𓏼´ㅂ𓏼⁾﹗
 
 
 <p align="center"/>
- ❛❛　<i>Don't say yes until I finish talking!</i>　❞ 
+ ❛❛　<i>If you ain't guilty, then why are you running?!</i>　❞ 
 
  
 <p align="center"

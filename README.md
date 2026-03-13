@@ -12,7 +12,7 @@
 
 
 
-   ૮꒰ྀི´ ˘ `` ꒱ྀི 　𝄈　　`j`u̲l̲y 16  ♡　　ᨯ
+   ૮꒰ྀི´ ˘ `` ꒱ྀི 　𝄈　　  ♡　　ᨯ
   
 <img width="128" height="128" alt="image_2026-02-10_105811132" src="https://github.com/user-attachments/assets/2c8166dd-ccf2-4ee2-af78-6cb06a9c4efd" />
 

@@ -21,7 +21,7 @@
 
 <img width="168" height="168" alt="image_2026-02-10_105811132" src="https://files.catbox.moe/9qb6u1.png" />
 
- 𓊆ྀི۫ ̣̣̥[pt info](https://rentry.co/docsordersinfo) ⸝ straw.ᵖᵃᵍᵉ  ༷𓊇ྀི  <br>
+ 𓊆ྀི۫ ̣̣̥[pt info](https://rentry.co/docsordersinfo) ⸝ [straw.ᵖᵃᵍᵉ](https://johnngrace.straw.page)  ༷𓊇ྀི  <br>
  [ᵍᵘⁿˢ.ˡᵒˡ](https://guns.lol/sergeantcoyle)　[ᵃᵗᵃᵇᵒᵒᵏ](https://docsorders.atabook.org)
 
 `I` just cannot help myself. <br>

@@ -24,3 +24,6 @@
  𓊆ྀི۫ ̣̣̥[pt info](https://rentry.co/docsordersinfo) ⸝ straw.ᵖᵃᵍᵉ  ༷𓊇ྀི  <br>
  [ᵍᵘⁿˢ.ˡᵒˡ](https://guns.lol/sergeantcoyle)　[ᵃᵗᵃᵇᵒᵒᵏ](https://docsorders.atabook.org)
 
+`I` just cannot help myself. <br>
+ᵇᵘᵗ ᶠᵃˡˡ ʳⁱᵍʰᵗ ⁱⁿᵗᵒ ʸᵒᵘ.
+

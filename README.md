@@ -1,4 +1,6 @@
 <div align="center">
+<img width="468" height="468" alt="image_2026-02-10_105811132" src="https://files.catbox.moe/3owquu.png"/>
+
 
 ᨸ꒰ྀི　　`co`yle　ᵒʳ　john　　ྀིᨯ 
 
@@ -26,4 +28,7 @@
 
 `I` just cannot help myself. <br>
 ᵇᵘᵗ ᶠᵃˡˡ ʳⁱᵍʰᵗ ⁱⁿᵗᵒ ʸᵒᵘ.
+
+<img width="468" height="468" alt="image_2026-02-10_105811132" src="https://files.catbox.moe/j3uomo.png" />
+
 

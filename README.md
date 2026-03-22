@@ -13,8 +13,13 @@
 
 
    ૮꒰ྀི´ ˘ `` ꒱ྀི 　𝄈　　 `j`uly 16th ♡　　ᨯ
-  
-<img width="128" height="128" alt="image_2026-02-10_105811132" src="https://github.com/user-attachments/assets/2c8166dd-ccf2-4ee2-af78-6cb06a9c4efd" />
+
+𓎢𓎟𓎟𓎡
+
+   heavy grace fixation + sinner fictionkin. <br>
+ 　　 ᶜᵒᵐᶠᵒʳᵗ ᵍᵃᵐᵉ.　　　ᵈᵒᵘᵇˡᵉˢ ⁱⁿᵗᵉʳᵃᶜᵗ!
+
+<img width="168" height="168" alt="image_2026-02-10_105811132" src="https://files.catbox.moe/9qb6u1.png" />
 
  𓊆ྀི۫ ̣̣̥[pt info](https://rentry.co/docsordersinfo) ⸝ straw.ᵖᵃᵍᵉ  ༷𓊇ྀི  <br>
  [ᵍᵘⁿˢ.ˡᵒˡ](https://guns.lol/sergeantcoyle)　[ᵃᵗᵃᵇᵒᵒᵏ](https://docsorders.atabook.org)

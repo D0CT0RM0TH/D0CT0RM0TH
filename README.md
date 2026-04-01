@@ -19,7 +19,7 @@
    heavy grace fixation + sinner fictionkin. <br>
  　　 ᶜᵒᵐᶠᵒʳᵗ ᵍᵃᵐᵉ.　　　ᵈᵒᵘᵇˡᵉˢ ⁱⁿᵗᵉʳᵃᶜᵗ!
 
-<img width="168" height="168" alt="image_2026-02-10_105811132" src="https://files.catbox.moe/9qb6u1.png" />
+<img width="168" height="168" alt="image_2026-02-10_105811132" src="https://files.catbox.moe/jobn6w.png" />
 
  𓊆ྀི۫ ̣̣̥[pt info](https://rentry.co/docsordersinfo) ⸝ [straw.ᵖᵃᵍᵉ](https://johnngrace.straw.page)  ༷𓊇ྀི  <br>
  **[prns.ᵖᵃᵍᵉ](https://en.pronouns.page/@D0CT0RM0TH)　[atabook](https://docsorders.atabook.org)**

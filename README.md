@@ -1,3 +1,7 @@
+
+
+<div>
+  <img align="right" width="468" height="468" alt="https://files.catbox.moe/o7twgn.png" src="https://files.catbox.moe/o7twgn.png" />
 <div align="center">
 
 ᨸ꒰ྀི　　`co`yle　ᵒʳ　john　　ྀིᨯ 
@@ -18,13 +22,11 @@
 
    heavy grace fixation + sinner fictionkin. <br>
  　　 ᶜᵒᵐᶠᵒʳᵗ ᵍᵃᵐᵉ.　　　ᵈᵒᵘᵇˡᵉˢ ⁱⁿᵗᵉʳᵃᶜᵗ!
-
-<img width="168" height="168" alt="image_2026-02-10_105811132" src="https://files.catbox.moe/jobn6w.png" />
-
- 𓊆ྀི۫ ̣̣̥[pt info](https://rentry.co/docsordersinfo) ⸝ [straw.ᵖᵃᵍᵉ](https://johnngrace.straw.page)  ༷𓊇ྀི  <br>
+ 
+  𓊆ྀི۫ ̣̣̥[pt info](https://rentry.co/docsordersinfo) ⸝ [straw.ᵖᵃᵍᵉ](https://johnngrace.straw.page)  ༷𓊇ྀི  <br>
  **[prns.ᵖᵃᵍᵉ](https://en.pronouns.page/@D0CT0RM0TH)　[atabook](https://docsorders.atabook.org)**
 
 `I` just cannot help myself. <br>
 ᵇᵘᵗ ᶠᵃˡˡ ʳⁱᵍʰᵗ ⁱⁿᵗᵒ ʸᵒᵘ.
 
-
+</div>

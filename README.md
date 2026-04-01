@@ -1,7 +1,7 @@
 
 
 <div>
-  <img align="right" width="468" height="468" alt="https://files.catbox.moe/nfzma7.png" src="https://files.catbox.moe/nfzma7.png" />
+  <img align="right" width="468" height="468" alt="https://files.catbox.moe/0lgh5i.png" src="https://files.catbox.moe/0lgh5i.png" />
 <div align="center">
 
 ᨸ꒰ྀི　　`co`yle　ᵒʳ　john　　ྀིᨯ 

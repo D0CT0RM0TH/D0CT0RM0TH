@@ -26,7 +26,7 @@
   𓊆ྀི۫ ̣̣̥[pt info](https://rentry.co/docsordersinfo) ⸝ [straw.ᵖᵃᵍᵉ](https://johnngrace.straw.page)  ༷𓊇ྀི  <br>
  **[prns.ᵖᵃᵍᵉ](https://en.pronouns.page/@D0CT0RM0TH)　[atabook](https://docsorders.atabook.org)**
 
-`I` just cannot help myself. <br>
-ᵇᵘᵗ ᶠᵃˡˡ ʳⁱᵍʰᵗ ⁱⁿᵗᵒ ʸᵒᵘ.
+genuinely dni if youre gonna go after people i care about <br>
+you fucking piss me off and disgust me dude.
 
 </div>

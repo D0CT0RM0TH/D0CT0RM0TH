@@ -26,7 +26,7 @@
   𓊆ྀི۫ ̣̣̥[pt info](https://rentry.co/docsordersinfo) ⸝ [straw.ᵖᵃᵍᵉ](https://johnngrace.straw.page)  ༷𓊇ྀི  <br>
  **[prns.ᵖᵃᵍᵉ](https://en.pronouns.page/@D0CT0RM0TH)　[atabook](https://docsorders.atabook.org)**
 
- dni if youre gonna go after my friends. <br>
-you genuinely fucking piss me off and disgust me.
+ sign my ata for a lolipop or a bloxy cola ok..? <br>
+CHANGING GITHUB.. PLACEHOLDER.
 
 </div>
